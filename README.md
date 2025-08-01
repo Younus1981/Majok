@@ -1,1 +1,2 @@
-Privacy and terms of Majok app
+privacy and terms English
+سياسية الخصوصية والاحكام
